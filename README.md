@@ -1,4 +1,4 @@
-perkenalkan nama saya rachel mutiara hesa,biasa dipanggil cel ,saya sekarang belajat di universitas negri padang,
+Perkenalkan nama saya Rachel Mutiara Hesa, biasa dipanggil cel, saya sekarang belajar di universitas negri padang,
 
 #
 
